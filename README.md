@@ -1,4 +1,4 @@
-# Mindfulness Meditation Session
+# Mindfulness Meditation
 
 ## Unstablelandscape: 
 ## Meditation for Change-makers in a Burning World
