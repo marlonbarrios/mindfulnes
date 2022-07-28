@@ -1,7 +1,7 @@
 # Mindfulness Meditation
 
 ## Unstablelandscape: 
-## Meditation for Change-makers in a Burning World
+## Meditation for Changemakers in a Burning World
 
 ![Screen Shot 2022-07-26 at 12 45 57 PM](https://user-images.githubusercontent.com/90220317/181602860-85ffeb5d-957f-4e15-ba1d-e1de9f804292.png)
 
