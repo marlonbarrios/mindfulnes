@@ -11,6 +11,10 @@ I teach online and onsite mindfulness meditation sessions to artists, dancers, c
 
 [Sati Mindfulness of the Body : Marlon Barrios Solano : Free Download, Borrow, and Streaming : Internet Archive](https://archive.org/details/sati_07_27_22)
 
+[Recordings from guided meditations on the Four Foundations of Mindfuness offered to Kernel,a web3 educational community June-July 2022](https://www.kernel.community/en/build/dance/sati)
+
+
+
 
 
 
