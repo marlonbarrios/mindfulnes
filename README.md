@@ -1,4 +1,4 @@
-# Mindfulness Meditation
+# Mindfulness Meditation (SATI)
 
 ## Unstablelandscape: 
 ## Meditation for Changemakers in a Burning World
@@ -17,7 +17,7 @@ I teach online and onsite mindfulness meditation sessions to artists, dancers, c
 
 Go to
 
-[dance-tech.net home page](https://www.dance-tech.net/) 
+[dance-tech.net home page](https://www.dance-tech.net/) (in desktop computer)
 
 Use the Donate button in the right sidebar!
 or use this PyPal link:
