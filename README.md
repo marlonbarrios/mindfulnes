@@ -13,6 +13,19 @@ I teach online and onsite mindfulness meditation sessions to artists, dancers, c
 
 [Recordings from guided meditations on the Four Foundations of Mindfuness offered to Kernel,a web3 educational community June-July 2022](https://www.kernel.community/en/build/dance/sati)
 
+<p><b>WOULD YOU LIKE MAKE A ONE TIME DONATION?</b></p>
+
+Go to
+
+[dance-tech.net home page](https://www.dance-tech.net/)
+
+Use the Donate button in the right sidebar!
+
+Thank you!
+
+marlon
+
+
 
 
 
