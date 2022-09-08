@@ -17,14 +17,20 @@ I teach online and onsite mindfulness meditation sessions to artists, dancers, c
 
 Go to
 
-[dance-tech.net home page](https://www.dance-tech.net/)
+[dance-tech.net home page](https://www.dance-tech.net/) 
 
 Use the Donate button in the right sidebar!
+or use this PyPal link:
+
+[PayPal](https://www.paypal.com/paypalme/marlonbarriossolano?country.x=US&locale.x=en_US)
+
 
 Thank you!
 
 marlon
 
+
+![qrcode](https://user-images.githubusercontent.com/90220317/189076065-8084084a-611e-443c-a417-26d929209159.png)
 
 
 
