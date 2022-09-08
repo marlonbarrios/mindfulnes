@@ -34,14 +34,24 @@ marlon
 
 
 *** ensō ring |
+
 a contemplative digital object
+
 An enso circle or ensō (円相) is a minimalist Japanese symbol that features a simple, circular shape that is not filled in, drawn to leave out the outline.
+
 ensō rings represent enlightenment. Enlightenment can be defined as an awakening or understanding of something. With it, your goal is to be enlightened about the beauty of change and emptiness. 
+
 I tried to simulate the quality of the ink and watercolor as a living process. A mutating process as an object that is not completely finished yet perfectly complete.
+
 "Form is emptiness (śūnyatā), emptiness is form."
+
 Concept and code by: Marlon Barrios Solano  
+
 https://lnkd.in/gMM_3QZR
+
 #creativecoding #meditation #contemplative #javascript
+
+<img width="693" alt="Screen Shot 2022-09-05 at 4 25 38 PM" src="https://user-images.githubusercontent.com/90220317/189080636-4a730f8b-d594-41df-b7ae-7ba01ecd0c39.png">
 
 
 
