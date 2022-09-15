@@ -37,10 +37,10 @@ I am a Certified Vipassana/Mindfulness Meditation Teacher by Spirit Rock Meditat
 
 [Recordings from guided meditations on the Four Foundations of Mindfuness offered to Kernel,a web3 educational community June-July 2022](https://www.kernel.community/en/build/dance/sati)
 
+There has been many depictions of the Buddha and its is said that he liked to be represented by footprints. I think that he would have laugh and totally have fun with these depictions that I created using AI (Open AI)...it is empty anyway... 
+Buddha by Basquiat, Haring, in Blade Runner and by Jim henson.
 
-
-
-
+<img width="470" alt="Screen Shot 2022-09-15 at 2 05 05 PM" src="https://user-images.githubusercontent.com/90220317/190399284-b042f336-f62f-4426-9130-27286703ea9a.png">
 
 
 
