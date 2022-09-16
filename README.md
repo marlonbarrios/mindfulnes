@@ -37,7 +37,7 @@ marlon
 
 ![qrcode](https://user-images.githubusercontent.com/90220317/189076065-8084084a-611e-443c-a417-26d929209159.png)
 
-I am a Certified Vipassana/Mindfulness Meditation Teacher by Spirit Rock Meditation Center (USA). I started Zen studies and practice in 1998 at Village Zendo in NYC with Enkio O'hara and Vipassana in 2008 at Insight Meditation Society, In Barre, MA in the US. I liived, worked and practiced at Insight Meditation Society (USA) from 2016 to 2021. I continue to study under Stephen Batchelor Metorship. I have been influenced by years of somatic practices new trauma sensitive apprcahes.I am an Embodyoga® 200 Hour Teacher (RYT200). I have been meditation teacher in residence at TicTac Art Centre in Brussels, Belgium and am part of the meditation guild in Kerlel.
+I am a Certified Vipassana/Mindfulness Meditation Teacher by Spirit Rock Meditation Center (USA). I started Zen studies and practice in 1998 at the Village Zendo in NYC with Enkio O'hara and Vipassana in 2008 at Insight Meditation Society in Barre, MA in the US. I lived, worked and practiced at Insight Meditation Society (USA) from 2016 to 2021. I continue to study under Stephen Batchelor's Metorship. I have been influenced by years of somatic  and movement art practices, new trauma sensitive approaches and complexity theory. I am an Embodyoga® 200 Hour Teacher (RYT200). I am a  meditation teacher in residence at TicTac Art Centre in Brussels, Belgium and I am part of the meditation guild in Kerlel.
 
 [dance-tech.net home page](https://www.dance-tech.net/profile/network_producer) 
 
