@@ -44,9 +44,12 @@ I am a Certified Vipassana/Mindfulness Meditation Teacher by Spirit Rock Meditat
 
 ## Resources:
 
+[Resources Kernel site,a web3 educational community June-July 2022](https://www.kernel.community/en/build/sati/)
+
+[Four Foundations of Mindfulness for Kernel Block 7 | Recordings September-Novemeber 2022](https://archive.org/details/meditation_202211)
+
 [Sati Mindfulness of the Body : Marlon Barrios Solano : Free Download, Borrow, and Streaming : Internet Archive](https://archive.org/details/sati_07_27_22)
 
-[Recordings from guided meditations on the Four Foundations of Mindfuness offered to Kernel,a web3 educational community June-July 2022](https://www.kernel.community/en/build/sati/)
 
 There has been many depictions of the Buddha and its is said that he liked to be represented by footprints. I think that he would have laugh and totally have fun with these depictions that I created using AI (Open AI)...it is empty anyway... 
 Buddha by Basquiat, Haring, in Blade Runner and by Jim henson.
