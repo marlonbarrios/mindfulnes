@@ -8,7 +8,8 @@ Buddha image from artist Igor Stromajer
 
 I teach online and onsite mindfulness meditation sessions to artists, dancers, creative technologists and blockchain enthusiasts. In my sessions, we will explore the potency of embodied awareness, ‘bodyfulness’ as a reframing of the four foundations of Mindfulness (Satipathana) as presented by early buddhism. I experiment with horizontal formats of facilitation and  intersect the practice of "Sati" with  contemporary practices influenced by embodied cognition and somatics. The sessions are  structired with  guided mindfulness practice, somatic movement awareness ufolding into a council/dialogue practice. I have have been reseraching and developing practices of embodied presence in online environments and how to teach mindfulness  from a fully embodied perspective. 
 
-I facilitate an ongoing mindfulness practice group every Wednesday at 6pm CET/12pm EST suported by Kernel and MotionDAO.
+I facilitate an ongoing mindfulness practice group every Wednesday at 6pm CET/12pm EST suported by Kernel while we are on a block.
+
 email marlon@dance-tech.net to get the link.
 
 I offer online one on one consultations; if you would like to meet on Zoom you can make an appointment [here](https://calendly.com/marlon-13/one-hour-motiondao)
