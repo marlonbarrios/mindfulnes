@@ -31,6 +31,16 @@ or go to
 
 Use the Donate button in the right sidebar!
 
+You may also donate in cryptocurrency:
+
+USDC or ETH
+
+0xB8d44604fdC6229bD860e55c06496b83452461F5
+
+Bitcoin
+
+3FupaEAp5CxZbDAXubMAhLs1WuSsRQV9M3
+
 Thank you!
 
 marlon
