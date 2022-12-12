@@ -14,9 +14,9 @@ email marlon@dance-tech.net to get the link.
 
 I offer online one on one consultations; if you would like to meet on Zoom you can make an appointment [here](https://calendly.com/marlon-13/one-hour-motiondao)
 
+[SET A MONTHLY DONATION!](https://www.patreon.com/user?u=84024387&fan_landing=true&view_as=public)
 
 <p><b>WOULD YOU LIKE MAKE A ONE TIME DONATION?</b></p>
-
 
 You may use this PayPal link:
 
