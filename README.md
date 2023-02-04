@@ -6,49 +6,19 @@
 
 Buddha image from artist Igor Stromajer
 
-I teach online and onsite mindfulness meditation sessions to artists, dancers, creative technologists and blockchain enthusiasts. In my sessions, we will explore the potency of embodied awareness, ‘bodyfulness’ as a reframing of the four foundations of Mindfulness (Satipathana) as presented by early buddhism. I experiment with horizontal formats of facilitation and  intersect the practice of "Sati" with  contemporary practices influenced by embodied cognition and somatics. The sessions are  structired with  guided mindfulness practice, somatic movement awareness ufolding into a council/dialogue practice. I have have been reseraching and developing practices of embodied presence in online environments and how to teach mindfulness  from a fully embodied perspective. 
+I offer online and onsite mindfulness meditation sessions to artists, dancers, creative technologists, and blockchain enthusiasts. During these sessions, we will delve into the power of embodied awareness, also known as "bodyfulness." We will reinterpret the four foundations of mindfulness from early Buddhism, combining contemporary practices influenced by embodied cognition and somatics with the practice of "Sati."
 
-I facilitate an ongoing mindfulness practice group every Wednesday at 6pm CET/12pm EST suported by Kernel while we are on a block.
+The sessions are structured with guided mindfulness practice, somatic movement awareness, and a council/dialogue practice. I have been researching and developing embodied presence practices for online environments and teaching mindfulness from a fully embodied perspective.
 
-email marlon@dance-tech.net to get the link.
+I host an ongoing mindfulness practice group every Wednesday at 6pm CET/12pm EST, supported by Kernel. If you're interested, you can email marlon@dance-tech.net for the link. I also offer online one-on-one consultations by appointment.
 
-I offer online one on one consultations; if you would like to meet on Zoom you can make an appointment [here](https://calendly.com/marlon-13/one-hour-motiondao)
-
-[SET A MONTHLY DONATION!](https://www.patreon.com/user?u=84024387&fan_landing=true&view_as=public)
-
-<p><b>WOULD YOU LIKE MAKE A ONE TIME DONATION?</b></p>
-
-You may use this PayPal link:
-
-[PayPal](https://www.paypal.com/paypalme/marlonbarriossolano?country.x=US&locale.x=en_US)
-
-Venmo
-@marlonbarriossolano
-
-or go to
-
-[dance-tech.net home page](https://www.dance-tech.net/) (in desktop computer)
-
-Use the Donate button in the right sidebar!
-
-You may also donate in cryptocurrency:
-
-USDC or ETH
-
-0xB8d44604fdC6229bD860e55c06496b83452461F5
-
-Bitcoin
-
-3FupaEAp5CxZbDAXubMAhLs1WuSsRQV9M3
-
-Thank you!
-
-marlon
+If you would like to support my work, you can set up a monthly donation or make a one-time donation through PayPal (PayPal.Me/marlonbarriossolano), Venmo (@marlonbarriossolano), or the dance-tech.net website. Donations can also be made in cryptocurrency, including USDC or ETH (0xB8d44604fdC6229bD860e55c06496b83452461F5), Bitcoin (3FupaEAp5CxZbDAXubMAhLs1WuSsRQV9M3). Thank you!
 
 
 ![qrcode](https://user-images.githubusercontent.com/90220317/189076065-8084084a-611e-443c-a417-26d929209159.png)
+As a certified Vipassana/Mindfulness Meditation Teacher by Spirit Rock Meditation Center in the US, I bring over two decades of experience and training to my teachings. I started my journey with Zen studies and practice in 1998 at the Village Zendo in NYC and later deepened my understanding of Vipassana at the Insight Meditation Society in Barre, MA. I lived and worked at Insight Meditation Society from 2016 to 2021, and I am currently under the mentorship of Stephen Batchelor.
 
-I am a Certified Vipassana/Mindfulness Meditation Teacher by Spirit Rock Meditation Center (USA). I started Zen studies and practice in 1998 at the Village Zendo in NYC with Enkio O'hara and Vipassana in 2008 at Insight Meditation Society in Barre, MA in the US. I lived, worked and practiced at Insight Meditation Society (USA) from 2016 to 2021. I continue to study under Stephen Batchelor's Metorship. I have been influenced by years of somatic  and movement art practices, new trauma sensitive approaches and complexity theory. I am an Embodyoga® 200 Hour Teacher (RYT200). I am a  meditation teacher in residence at TicTac Art Centre in Brussels, Belgium and I am part of the meditation guild in Kerlel.
+With a strong background in somatic and movement art practices, as well as a trauma-sensitive approach and knowledge of complexity theory, I offer a unique perspective as a meditation teacher. Additionally, I am an Embodyoga® 200 Hour Registered Yoga Teacher and a meditation teacher in residence at TicTac Art Centre in Brussels, Belgium, as well as a member of the meditation guild in Kernel.
 
 [dance-tech.net home page](https://www.dance-tech.net/profile/network_producer) 
 
@@ -60,9 +30,7 @@ I am a Certified Vipassana/Mindfulness Meditation Teacher by Spirit Rock Meditat
 
 [Sati Mindfulness of the Body : Marlon Barrios Solano Free Download, Borrow, and Streaming  Internet Archive](https://archive.org/details/sati_07_27_22)
 
-
-There has been many depictions of the Buddha and its is said that he liked to be represented by footprints. I think that he would have laugh and totally have fun with these depictions that I created using AI (Open AI)...it is empty anyway... 
-Buddha by Basquiat, Haring, in Blade Runner and by Jim henson.
+As a certified meditation teacher, I have a deep appreciation for the Buddha and his teachings. It's said that he liked to be represented by footprints, but I imagine he would have a good laugh and enjoy these AI-generated depictions of him. From a Buddha inspired by the work of Basquiat and Haring to those depicted in Blade Runner and Jim Henson, these representations may be empty, but they highlight the enduring influence of the Buddha and his teachings.
 
 <img width="470" alt="Screen Shot 2022-09-15 at 2 05 05 PM" src="https://user-images.githubusercontent.com/90220317/190399284-b042f336-f62f-4426-9130-27286703ea9a.png">
 
