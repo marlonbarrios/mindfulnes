@@ -7,6 +7,8 @@ I offer online and in-person mindfulness meditation sessions tailored to artists
 
 Each session includes guided mindfulness practice, somatic movement awareness, and a council/dialogue practice. I have researched and developed embodied presence practices for online environments, enabling me to teach mindfulness from a fully embodied perspective.
 
+## [You can support my teaching and projects leaving donations here.](https://linktr.ee/marlonbarriososolano)
+
 ## Additionally, I offer one-on-one online consultations by appointment.
 
 As a certified Vipassana/Mindfulness Meditation Teacher by Spirit Rock Meditation Center in the US, I bring over two decades of experience and training to my teachings. My journey started with Zen studies and practice in 1998 at the Village Zendo in NYC, and I later deepened my understanding of Vipassana at the Insight Meditation Society in Barre, MA. From 2016 to 2021, I lived and worked at Insight Meditation Society and studied under the mentorship of Stephen Barchelor since 2015.
@@ -25,7 +27,6 @@ Instances of Sati-AI:
 ## Images generated with [Sati-GPT (for users ChatGPT Plus](https://chat.openai.com/g/g-OJNX2BtNG-sati-gpt)
 
 ![DALL·E 2023-11-09 19 17 13 - A black and white minimalist mandala representing the concept of impermanence  The design should include flowing, interweaving patterns that suggest c](https://github.com/marlonbarrios/mindfulness/assets/90220317/3a42f301-d1e8-434e-85db-3a866c4b48fd)
-![DALL·E 2023-11-09 18 27 43 - A black and white mandala representing the Buddhist teaching of impermanence, with intricate patterns that include symbols of change such as falling l](https://github.com/marlonbarrios/mindfulness/assets/90220317/4f06c3b8-b239-4ab3-bd40-ef3d6fa2f75c)
 
 ## More Resources:
 
@@ -36,7 +37,6 @@ Instances of Sati-AI:
 [Sati Mindfulness of the Body : Marlon Barrios Solano Free Download, Borrow, and Streaming  Internet Archive](https://archive.org/details/sati_07_27_22)
 
 
-[You can support my teaching and projects leaving donations here.](https://linktr.ee/marlonbarriososolano)
 
 ## Fun stuff
 
